@@ -1,3 +1,2 @@
 # HelloWorld
 hello....... this is my code sharring platform where i work on projects :3
-im a IT student at belgium campus and my fav code languages is python and javascript please dm me if you have coding advice...
